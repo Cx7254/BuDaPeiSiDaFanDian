@@ -1,6 +1,7 @@
 # 布达佩斯大饭店中的拍摄手法 #                          
 [布达佩斯大饭店电影](https://www.baidu.com/link?url=sYhsgja_26dyakqkRyVFjK647aDx-N2NJcglzeqgPZGVJTRQnkM60f8lsCyuLuU1U8eR4hoWUBoQXGjVgIDXXpYnKHGGUwsfIH2qsAPNy09XpcI2NW8g8sLlHKdPUAdQtkZcE0_7Gcn2YcT8Au4RGhO0EMbLkDGPSIcck0cpdoe&wd=&eqid=febd103f00e26567000000056561dbb1 )《布达佩斯大饭店》是一部2014年上映的喜剧电影，由导演韦斯·安德森执导。该片以20世纪初的欧洲为背景，讲述了一段发生在著名布达佩斯大饭店的令人难忘的故事。
-https://p2.itc.cn/images01/20230706/3604ed8c25834a819831e04048db18f7.jpeg
+![image](https://github.com/Cx7254/BuDaPeiSiDaFanDian/assets/151991704/343d8ca6-e04e-4f3e-8eb4-86add5147529)
+
 ## 一、特写镜头 
 在剧中，特写镜头常常用来展示主人公希尔德的面部表情和眼神。例如，在戏剧性的场景中，当他面对困境时，特写镜头会紧密地聚焦在他的脸上，传递出他内心的紧张和决心。
 ![image](https://githubfast.com/Cx7254/BuDaPeiSiDaFanDian/assets/151991704/fc560895-4dc4-473c-95a3-faa175b85085)
