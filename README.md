@@ -1,6 +1,6 @@
 # 布达佩斯大饭店中的拍摄手法 #                          
 [布达佩斯大饭店电影](https://www.baidu.com/link?url=sYhsgja_26dyakqkRyVFjK647aDx-N2NJcglzeqgPZGVJTRQnkM60f8lsCyuLuU1U8eR4hoWUBoQXGjVgIDXXpYnKHGGUwsfIH2qsAPNy09XpcI2NW8g8sLlHKdPUAdQtkZcE0_7Gcn2YcT8Au4RGhO0EMbLkDGPSIcck0cpdoe&wd=&eqid=febd103f00e26567000000056561dbb1 )《布达佩斯大饭店》是一部2014年上映的喜剧电影，由导演韦斯·安德森执导。该片以20世纪初的欧洲为背景，讲述了一段发生在著名布达佩斯大饭店的令人难忘的故事。
-![image](https://github.com/Cx7254/BuDaPeiSiDaFanDian/assets/151991704/343d8ca6-e04e-4f3e-8eb4-86add5147529)
+![image](https://githubfast.com/Cx7254/BuDaPeiSiDaFanDian/assets/151991704/343d8ca6-e04e-4f3e-8eb4-86add5147529)
 
 ## 一、特写镜头 
 在剧中，特写镜头常常用来展示主人公希尔德的面部表情和眼神。例如，在戏剧性的场景中，当他面对困境时，特写镜头会紧密地聚焦在他的脸上，传递出他内心的紧张和决心。
@@ -38,7 +38,7 @@ https://p9.itc.cn/images01/20230706/58249390f68c4aa58b815c5bb260b602.jpeg
 ### 7.理解角色： 
  通过特写镜头，观众可以更加亲密地接触到角色，感受到他们的真实性和复杂性。特写镜头可以帮助观众更好地理解角色的动机、冲突和成长过程，增强角色的代入感。
 https://p2.itc.cn/images01/20230706/a0dd4c095ed34d859af2326161b2e2c0.jpeg
-### 8.增加紧张感：                                                                         
+### 8.增加紧张感： 
 特写镜头在电影中经常被用于创造紧张和悬念的效果。通过将视野局限于某个局部或细节，特写镜头可以增加观众的焦虑感和紧张感，让观众更加投入。影片中还使用了运动轨迹的镜头移动方式。通过在固定轨迹上移动摄影机，可以呈现出平稳而连贯的画面效果。这种移动方式常常被用于展示场景的全貌或者为观众呈现大范围的空间感。
 https://p8.itc.cn/images01/20230706/3e2d369f625446ea8f9f77bceabc7f8c.jpeg             
 ## 四、踪镜头的情感追逐感 
